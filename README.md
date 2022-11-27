@@ -1,2 +1,2 @@
 Have awkward secrets? 
-Wanna share them with people without exposing your identity?
+Wanna share them with people anonymously?
